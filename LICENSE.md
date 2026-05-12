@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CapCut for macOS plugin with CapCut for macOS new Plugin - voice-enhancement and collaboration-tools. Featuring voice-enhancement and collaboration-tools, it's
 
 
 
